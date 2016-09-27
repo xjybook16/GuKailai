@@ -65,7 +65,7 @@
 
 「天网恢恢，疏而不漏」，虽然谷开来把这些罪恶的勾当掩盖得很深，但老天爷还是在种种「巧合」的背后让其露出蛛丝马迹。
 
-<p><img src="https://cloud.githubusercontent.com/assets/19661274/16099611/82086396-339c-11e6-89e2-241320f5f270.png"></p>
+<p><img src="https://cloud.githubusercontent.com/assets/20497761/18823715/69f77696-838a-11e6-82f7-6c9694358fd1.png"></p>
 <p><b>购书请访问 <a id="003" href="https://d3d81mrik9btdw.cloudfront.net/cn/book/薄熙來王立軍案被掩藏內幕-84382038?m=https://d3d81mrik9btdw.cloudfront.net&u=1003wechat"> 新纪元商城</a></b>
 <p><a id="008" href="https://d3d81mrik9btdw.cloudfront.net/cn/shop-QA?m=https://d3d81mrik9btdw.cloudfront.net&u=1003wechat"><b>购物问答</b></a>
 <p>實體書：台湾：诚品、金石堂、博客来网络书店、机场等各大书店发售 | 香港/澳门书店及旺角、尖沙咀、铜锣湾、澳门书报摊发售</p>
